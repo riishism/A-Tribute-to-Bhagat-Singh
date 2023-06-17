@@ -1,2 +1,4 @@
-# A-Tribute-to-Bhagat-Singh
-The Legend Of Shaheed Bhagat Singh
+Sarfaroshi ki tammana
+Ab humare dil mein hai
+Dekhna hai zor kitna
+Bajuye qatil mein hai
